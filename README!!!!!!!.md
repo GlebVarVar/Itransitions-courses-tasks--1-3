@@ -1,4 +1,6 @@
-# itransitions
+# Курсы itransitions (Февраль-март 2022)
+
+
 Sry for Russian...
 
 Приветствую! 
